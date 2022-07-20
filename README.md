@@ -1,3 +1,3 @@
 (´ ∀ ` *)	
 
-linkedin.com/in/rzkalqadri
+https://www.linkedin.com/in/rizkialqadri/
