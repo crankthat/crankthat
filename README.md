@@ -1,1 +1,1 @@
-｡ﾟ(ﾟ´Д｀ﾟ)ﾟ｡	https://www.linkedin.com/in/rizkialqadri/
+[![](https://i.imgur.com/1a76BYY.gif)](https://www.linkedin.com/in/rizkialqadri/)
