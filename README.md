@@ -1,6 +1,6 @@
 💭 profile & repositories under construction
 
-🎑 learning: javascript → reactjs 🔜
+🎑 currently learning: javascript → reactjs 🔜
 
 
 [![](https://i.imgur.com/1a76BYY.gif)]()
